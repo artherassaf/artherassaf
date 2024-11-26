@@ -7,7 +7,7 @@
   - Email: artherassaf@gmail.com
 - 😄 Pronouns: He/Him
 - ⚡ Fun Facts...
-   - Given the chance to travel anywhere in the universe, I'd probably head straight to the Mandarin Buffet—priorities, right?
+   - Given the chance to travel anywhere in the universe, I'd probably head straight to the Mandarin Buffet. Priorities, right?
    - My leadership skills trace all the way back to the 4th grade, when I led the infamous "Green Beans" to the only undefeated dodgball season in Mrs. Riley's PE class.
    - Tom Holland and I share a birthday!
  

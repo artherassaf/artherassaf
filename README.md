@@ -3,7 +3,7 @@
 - 👀 I’m eager to learn new skills, provide valuable insights, and contribute to any available opportunities. Feel free to reach out!
 - 💞️ I’m passionate about software development, data visualization, and full-stack applications.
 - 📫 How to reach me:
-  - LinkedIn: www.linkedin.com/in/arther-assaf 
+  - LinkedIn: www.linkedin.com/in/arther-assaf-527828261
   - Email: artherassaf@gmail.com
 - 😄 Pronouns: He/Him
 - ⚡ Fun Facts...

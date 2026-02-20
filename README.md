@@ -1,5 +1,5 @@
 - 👋 Hey, I’m Arther Assaf
-- 🌱 I’m a second year Computer Engineering student at McMaster University
+- 🌱 I’m a third year Computer Engineering student at McMaster University
 - 👀 I’m eager to learn new skills, provide valuable insights, and contribute to any available opportunities. Feel free to reach out!
 - 💞️ I’m passionate about software development, data visualization, and full-stack applications.
 - 📫 How to reach me:
